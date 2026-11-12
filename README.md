@@ -1,1 +1,1 @@
-# [BannerLGD](www.youtube.com)
+# [BannerLGPD](www.youtube.com)
